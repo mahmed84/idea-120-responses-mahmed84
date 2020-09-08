@@ -4,4 +4,4 @@ Depending on the electronic media,
 Becoming a part of the digital environment, 
 A step into the information tech. 
 https://www.youtube.com/watch?v=NOTlRkO3Syk [youtube] (http://www.youtube.com/watch?v=NOTlRkO3Syk)
-(https://www.iberdrola.com/social-commitment/digital-transformation-and-corporate-culture.png)
+![Github Logo](https://images.app.goo.gl/mjgvtaAsgmSqMCp99)
