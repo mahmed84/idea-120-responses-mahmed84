@@ -1,0 +1,1 @@
+I was thinking of having more of a classroom setting where the environment around me seems to be refreshing and helps more in engaging considering how the classrooms generally are in order to create a studious environment with 3d detailings. 
